@@ -1,1 +1,1 @@
-# -IMT2200--SEBASTIAN---BLANCO-
+Sebastián Mauricio Blanco Gonzalez
